@@ -43,8 +43,8 @@ I’m always open to collaborating on:
 
 ## 📫 How to Reach Me
 
-- **Email**: [your-email@example.com](mailto:shaikhsohelfattaru@gmail.com)  
-- **LinkedIn**: [Your LinkedIn Profile](https://www.linkedin.com/in/shaikhsohel445)
+- **Email**: [shaikhsohelfattaru@gmail.com](mailto:shaikhsohelfattaru@gmail.com)  
+- **LinkedIn**: [ LinkedIn Profile](https://www.linkedin.com/in/shaikhsohel445)
 
 ## 😄 Pronouns: He/Him
 
